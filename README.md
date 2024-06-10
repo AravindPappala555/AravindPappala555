@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Generative AI
 - 📫 Ping me on Linkedin, I'm Aravind Pappala working at TechnicalHub 
 - 😄 Pronouns: Mr.
-- ⚡ Fun fact: Mission Impossible: Ghost protocol has best action sequences
+- ⚡ Fun fact: Watch How i met your mother series to make a convo with me.
 
 <!---
 AravindPappala555/AravindPappala555 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
