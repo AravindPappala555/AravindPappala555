@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @AravindPappala555
-- 👀 I’m interested in NEW TECHNOLOGIES
-- 🌱 I’m currently learning DEEP LEARNING
-- 💞️ I’m looking to collaborate on Generative AI
+- 👀 I’m interested in NEW AI TECH
 - 📫 Ping me on Linkedin, I'm Aravind Pappala working at TechnicalHub 
 - 😄 Pronouns: Mr.
 - ⚡ Fun fact: Watch How i met your mother series to make a convo with me.
